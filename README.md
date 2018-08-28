@@ -1,2 +1,2 @@
 # Jank-d
-Jank'd af my nigga
+Jank'd af my dude
